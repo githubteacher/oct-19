@@ -1,8 +1,8 @@
 # Chicago, IL
 
-### Places to Eat
+## Places to Eat
 - Lou Malnati's Pizza :pizza: 
 - Giordano's :pizza:
 
-### Things to Do
+## Things to Do
 - Chicago Symphony Orchestra
