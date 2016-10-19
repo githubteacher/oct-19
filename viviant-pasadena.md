@@ -8,5 +8,3 @@ Maison Akira in Pasadena
 
 Then walk to Pasadena Playhouse to catch a play! :)
 
-
-
