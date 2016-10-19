@@ -6,3 +6,4 @@
 
 ### Things to Do
 - Chicago Symphony Orchestra
+- Standup comedy
