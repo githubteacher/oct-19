@@ -6,5 +6,5 @@ Maison Akira in Pasadena
 
 ### Things to Do
 
-Watch a game at Rose Bowl
+Then walk to Pasadena Playhouse to catch a play! :)
 
