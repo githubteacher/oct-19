@@ -4,6 +4,6 @@
 - Lou Malnati's Pizza :pizza: :pizza: 
 - Giordano's :pizza:
 
-#### Things to Do
+## Things to Do
 - Chicago Symphony Orchestra
 - Walk Briana's Dog
