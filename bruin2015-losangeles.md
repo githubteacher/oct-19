@@ -5,3 +5,4 @@
 
 ### Things to Do
 - Hike Temescal Canyon for nice coastal views
+- GRiffith Observatory
