@@ -2,7 +2,7 @@
 
 ### Places to Eat
 
-Maison Akira in Pasadena
+Maison Akira in Pasadena (this place is so :yum:!!!)
 
 ### Things to Do
 
