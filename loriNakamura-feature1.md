@@ -2,4 +2,4 @@
 
 * Some other line
 
-Some different change on line 5
+Line 5
