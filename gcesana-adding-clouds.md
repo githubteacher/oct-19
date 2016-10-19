@@ -1,7 +1,7 @@
  # Pasadena, CA
 
  ### Best burger in town
-     The counter
+     The Counter
      In'n'out
 
  ### Best hikes around
